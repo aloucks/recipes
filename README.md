@@ -18,7 +18,7 @@
 
 1. Pre-heat oven to 350 degrees and rinse and drain the Black Beans.
 2. Saute Minced Garlic and Diced Green Chiles in Vegetable Oil over medium-high heat for about 1 minute.
-3. Add Cooked Chicken Breast, rinsed Black Beans, 1/2 Green Chile Enchilada Sauce, 3/4 Shredded Cheddar Cheese, Cream Cheese, Taco Seasoning, and Salt. Stir and cook 5-7 minutes.
+3. Add Cooked Chicken Breast, rinsed Black Beans, Diced Green Chiles, 1/2 Green Chile Enchilada Sauce, 3/4 Shredded Cheddar Cheese, Cream Cheese, Taco Seasoning, and Salt. Stir and cook 5-7 minutes.
 4. Add 1/4 Green Chile Enchilada Sauce into a large rectangular baking dish and spread.
 6. Wrap chicken mixture into Flour Tortillas and place into dish seam-side down.
 7. Pour remaining Green Chile Enchilada Sauce over enchiladas and bake at 350 degrees for 15 minutes.
