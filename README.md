@@ -50,3 +50,23 @@
 1. Boil Chicken Breasts about 12-15 minutes.
 2. Drain Chicken Breasts, allow to cool 5-10 minutes, and then cut into cubes.
 3. Combine everything into a crock pot and cook for 4-5 hours on low heat.
+
+# Beef Chuck Pot Roast
+
+### Ingredients
+
+- 4 lbs Beef Chuck Roast
+- 2 tbsp Unsalted Butter
+- 1 tbsp Vegetable Oil
+- 1 large Yellow Onion (cut into large wedges)
+- 2 cloves Garlic (or 1 tbs Garlic Powder)
+- 6 Carrots
+- 2 Celery Stalks
+- 4 Potatoes (cut into large pieces)
+- 2 tsp Rosemary
+- 2 Bay Leaves
+- 6 oz Tomato Paste
+- 1 cups Red Wine
+- 2 cups Beef Broth
+- 1 tsp Salt
+- 1 tsp Pepper
