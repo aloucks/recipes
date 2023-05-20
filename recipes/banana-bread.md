@@ -8,7 +8,7 @@
 - 1 tsp vanilla extract
 - 1/2 tsp salt
 - 2 eggs
-- 1 cup sugar
+- 1 cup sugar (or 3/4 cup brown sugar)
 - 3-4 very ripe bananas, depending on size
 - 1/2 cup vegetable oil
 - 1 tsp cinnamon
